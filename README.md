@@ -1,4 +1,4 @@
 Marc Schreine
-Hana Tausch
+Hanna Tausch
 Jörg Ettl
 
